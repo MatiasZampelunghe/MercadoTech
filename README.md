@@ -1,5 +1,5 @@
 # MercadoTech
 Rodri
-Jorge
+Jorge :monkey_face:
 Tomy
 Mati
