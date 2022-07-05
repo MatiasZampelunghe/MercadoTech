@@ -1,5 +1,5 @@
 # MercadoTech
-Rodri
-Jorge
 Tomy xd
-Mati
+Rodri ;)
+Jorge :monkey_face:
+Mati :robot:
